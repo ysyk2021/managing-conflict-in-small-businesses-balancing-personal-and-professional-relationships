@@ -1,4 +1,4 @@
-Chapter 4: Sources of Conflict in Small Businesses: Identifying Common Triggers of Conflict in Small Businesses
+Identifying Common Triggers of Conflict in Small Businesses
 ===============================================================================================================
 
 Identifying common triggers of conflict in small businesses is essential for managing conflict effectively. In this chapter, we will explore some of the most common triggers of conflict in small businesses.

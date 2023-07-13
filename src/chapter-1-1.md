@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Defining the Importance of Conflict Management in Small Businesses
+Defining the Importance of Conflict Management in Small Businesses
 ===========================================================================================
 
 Conflict is an inevitable part of any workplace, including small businesses. However, effective conflict management is critical for maintaining a positive and productive work environment. In this chapter, we will define the importance of conflict management in small businesses.

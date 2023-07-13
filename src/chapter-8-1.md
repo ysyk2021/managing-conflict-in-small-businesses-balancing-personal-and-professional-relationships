@@ -1,4 +1,4 @@
-Chapter 8: Keeping Emotions in Check: Techniques for Keeping Emotions in Check
+Techniques for Keeping Emotions in Check
 ==============================================================================
 
 During conflicts, emotions can run high and prevent effective communication and conflict resolution in small businesses. In this chapter, we will explore techniques for keeping emotions in check during conflict management.

@@ -1,4 +1,4 @@
-Chapter 9: Mediation and Third-Party Involvement: Identifying When to Involve a Third Party
+Identifying When to Involve a Third Party
 ===========================================================================================
 
 In some cases, conflicts in small businesses may be too complex or emotionally charged to resolve with internal conflict management strategies. In these situations, involving a third party can be an effective approach for resolving conflicts. In this chapter, we will explore when it is appropriate to involve a third party.

@@ -1,4 +1,4 @@
-Chapter 11: Sustaining Conflict Management Efforts: Adapting to Changes in the Business Environment
+Adapting to Changes in the Business Environment
 ===================================================================================================
 
 Small businesses are constantly evolving, and conflict management strategies must adapt to changes in the business environment. In this chapter, we will explore the importance of adapting to changes in the business environment when sustaining conflict management efforts.

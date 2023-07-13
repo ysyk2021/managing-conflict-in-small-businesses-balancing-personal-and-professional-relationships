@@ -1,4 +1,4 @@
-Chapter 4: Sources of Conflict in Small Businesses: Techniques for Identifying Sources of Conflict
+Techniques for Identifying Sources of Conflict
 ==================================================================================================
 
 Identifying the sources of conflict in small businesses is essential for managing conflict effectively. In this chapter, we will explore techniques for identifying the sources of conflict in small businesses.

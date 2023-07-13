@@ -1,4 +1,4 @@
-Chapter 6: Negotiation and Collaboration: Encouraging Cooperation and Teamwork
+Encouraging Cooperation and Teamwork
 ==============================================================================
 
 Negotiation and collaboration are important components of conflict management in small businesses. By encouraging cooperation and teamwork, small business leaders can prevent conflicts from escalating and foster a positive work environment. In this chapter, we will explore techniques for negotiation and collaboration.

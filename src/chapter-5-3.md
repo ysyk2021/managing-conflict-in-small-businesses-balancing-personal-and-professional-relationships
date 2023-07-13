@@ -1,4 +1,4 @@
-Chapter 5: Communication and Active Listening: Developing Active Listening Skills
+Developing Active Listening Skills
 =================================================================================
 
 Effective communication is essential for resolving conflicts in small businesses. Active listening is a critical component of effective communication and conflict resolution. In this chapter, we will explore techniques for developing active listening skills.

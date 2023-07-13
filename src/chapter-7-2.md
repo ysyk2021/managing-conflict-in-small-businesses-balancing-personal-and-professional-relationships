@@ -1,4 +1,4 @@
-Chapter 7: Addressing Conflict Directly: Using Assertive Communication Techniques
+Using Assertive Communication Techniques
 =================================================================================
 
 Addressing conflict directly is an important aspect of effective conflict management in small businesses. By using assertive communication techniques, small business leaders can prevent issues from escalating and foster a positive work environment. In this chapter, we will explore techniques for addressing conflict directly through assertive communication.

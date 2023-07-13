@@ -1,4 +1,4 @@
-Chapter 2: Overview of Conflict Management: The Impact of Conflict on Employee Morale and Performance
+The Impact of Conflict on Employee Morale and Performance
 =====================================================================================================
 
 Conflict can have a significant impact on employee morale and performance in small businesses. In this chapter, we will explore the impact of conflict on employee morale and performance.

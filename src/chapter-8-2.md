@@ -1,4 +1,4 @@
-Chapter 8: Keeping Emotions in Check: Managing Anger and Frustration
+Managing Anger and Frustration
 ====================================================================
 
 Managing emotions is an important aspect of effective conflict management in small businesses. During conflicts, anger and frustration can run high and prevent productive communication and resolution. In this chapter, we will explore techniques for managing anger and frustration during conflict.

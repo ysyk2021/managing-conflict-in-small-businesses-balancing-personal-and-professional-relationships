@@ -1,4 +1,4 @@
-Chapter 10: Measuring and Evaluating Conflict Management Effectiveness: Analyzing Results and Making Improvements
+Analyzing Results and Making Improvements
 =================================================================================================================
 
 Measuring and evaluating conflict management effectiveness is essential for small business leaders to understand the impact of their conflict management strategies. In this chapter, we will explore techniques for measuring and evaluating conflict management effectiveness and making improvements based on the results.

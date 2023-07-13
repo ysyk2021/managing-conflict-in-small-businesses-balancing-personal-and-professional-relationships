@@ -1,4 +1,4 @@
-Chapter 4: Sources of Conflict in Small Businesses: Understanding Different Types of Conflict
+Understanding Different Types of Conflict
 =============================================================================================
 
 Understanding the different types of conflict that can arise in small businesses is essential for managing conflict effectively. In this chapter, we will explore the sources of conflict in small businesses and the different types of conflict that can occur.

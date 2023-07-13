@@ -1,4 +1,4 @@
-Chapter 5: Communication and Active Listening: Building Trust and Respect through Effective Communication
+Building Trust and Respect through Effective Communication
 =========================================================================================================
 
 Effective communication is essential for managing conflicts in small businesses. By building trust and respect through effective communication, small business leaders can prevent issues from escalating and foster a positive work environment. In this chapter, we will explore the importance of communication and active listening in conflict management.

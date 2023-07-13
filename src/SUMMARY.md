@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Defining the Importance of Conflict Management in Small Businesses](chapter-1-1.md)
   - [The Benefits and Challenges of Effective Conflict Management](chapter-1-2.md)
   - [Why Understanding the Role of Balancing Personal and Professional Relationships is Critical for Small Business Success](chapter-1-3.md)
@@ -45,9 +44,5 @@
   - [Techniques for Sustaining Conflict Management Efforts](chapter-11-1.md)
   - [Continuous Learning and Improvement](chapter-11-2.md)
   - [Adapting to Changes in the Business Environment](chapter-11-3.md)
-- [Chapter 12: Conclusion](chapter-12.md)
-  - [Recap of Key Points and Strategies](chapter-12-1.md)
-  - [Final Recommendations for Managing Conflict in Small Businesses](chapter-12-2.md)
-  - [Future Directions for Research and Practice](chapter-12-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

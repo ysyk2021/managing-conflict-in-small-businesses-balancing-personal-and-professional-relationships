@@ -1,4 +1,4 @@
-Chapter 11: Sustaining Conflict Management Efforts: Continuous Learning and Improvement
+Continuous Learning and Improvement
 =======================================================================================
 
 Effective conflict management is not a one-time effort, but an ongoing process that requires continuous learning and improvement. In this chapter, we will explore the importance of sustaining conflict management efforts and techniques for continuous learning and improvement.

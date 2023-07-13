@@ -1,4 +1,4 @@
-Chapter 7: Addressing Conflict Directly: Dealing with Difficult Personalities
+Dealing with Difficult Personalities
 =============================================================================
 
 Addressing conflict directly is essential for managing conflict in small businesses. In this chapter, we will explore strategies for addressing conflict directly and dealing with difficult personalities.

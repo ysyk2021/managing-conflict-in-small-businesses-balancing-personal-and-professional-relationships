@@ -1,4 +1,4 @@
-Chapter 5: Communication and Active Listening: Techniques for Communication and Active Listening
+Techniques for Communication and Active Listening
 ================================================================================================
 
 Effective communication and active listening are essential components of conflict management in small businesses. In this chapter, we will explore techniques for communication and active listening.

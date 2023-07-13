@@ -1,4 +1,4 @@
-Chapter 12: Conclusion: Recap of Key Points and Strategies
+Recap of Key Points and Strategies
 ==========================================================
 
 Effective conflict management is essential for maintaining a positive and productive work environment in small businesses. In this chapter, we will recap key points and strategies covered throughout the book.

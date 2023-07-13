@@ -1,4 +1,4 @@
-Chapter 10: Measuring and Evaluating Conflict Management Effectiveness: Establishing Key Performance Indicators (KPIs)
+Establishing Key Performance Indicators (KPIs)
 ======================================================================================================================
 
 Establishing key performance indicators (KPIs) is an effective way to measure and evaluate conflict management effectiveness in small businesses. In this chapter, we will explore how to establish KPIs for conflict management.

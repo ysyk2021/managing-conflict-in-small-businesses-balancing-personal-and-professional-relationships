@@ -1,4 +1,4 @@
-Chapter 3: Understanding Personal and Professional Relationships: Techniques for Understanding Personal and Professional Relationships
+Techniques for Understanding Personal and Professional Relationships
 ======================================================================================================================================
 
 Understanding personal and professional relationships is critical for managing conflict effectively in small businesses. In this chapter, we will explore techniques for understanding personal and professional relationships.

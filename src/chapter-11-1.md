@@ -1,4 +1,4 @@
-Chapter 11: Sustaining Conflict Management Efforts: Techniques for Sustaining Conflict Management Efforts
+Techniques for Sustaining Conflict Management Efforts
 =========================================================================================================
 
 Effective conflict management requires ongoing attention and effort. In this chapter, we will explore techniques for sustaining conflict management efforts in small businesses.

@@ -1,4 +1,4 @@
-Chapter 10: Measuring and Evaluating Conflict Management Effectiveness: Techniques for Measuring and Evaluating Conflict Management Effectiveness
+Techniques for Measuring and Evaluating Conflict Management Effectiveness
 =================================================================================================================================================
 
 Measuring and evaluating conflict management effectiveness is critical for ensuring that conflict management strategies are working effectively in small businesses. In this chapter, we will explore techniques for measuring and evaluating conflict management effectiveness.

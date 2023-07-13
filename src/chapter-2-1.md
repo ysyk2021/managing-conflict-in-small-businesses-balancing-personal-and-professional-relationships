@@ -1,4 +1,4 @@
-Chapter 2: Overview of Conflict Management: Different Perspectives and Approaches to Conflict Management
+Different Perspectives and Approaches to Conflict Management
 ========================================================================================================
 
 Effective conflict management is essential for maintaining a positive and productive work environment in small businesses. In this chapter, we will explore different perspectives and approaches to conflict management.

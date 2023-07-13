@@ -1,4 +1,4 @@
-Chapter 9: Mediation and Third-Party Involvement: Understanding the Role of Mediation
+Understanding the Role of Mediation
 =====================================================================================
 
 In some cases, conflicts in small businesses may be too complex or emotionally charged to resolve with internal conflict management strategies. In these situations, mediation can be an effective approach for resolving conflicts. In this chapter, we will explore the role of mediation in managing conflicts in small businesses.

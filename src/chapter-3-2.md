@@ -1,4 +1,4 @@
-Chapter 3: Understanding Personal and Professional Relationships: Identifying Key Elements of Effective Relationships
+Identifying Key Elements of Effective Relationships
 =====================================================================================================================
 
 Effective personal and professional relationships are critical for managing conflict in small businesses. In this chapter, we will explore key elements of effective relationships.

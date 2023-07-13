@@ -1,4 +1,4 @@
-Chapter 9: Mediation and Third-Party Involvement: Techniques for Mediation and Third-Party Involvement
+Techniques for Mediation and Third-Party Involvement
 ======================================================================================================
 
 In some cases, conflicts in small businesses may be too complex or emotionally charged to resolve with internal conflict management strategies. In these situations, mediation and third-party involvement can be effective approaches for resolving conflicts. In this chapter, we will explore techniques for mediation and third-party involvement.

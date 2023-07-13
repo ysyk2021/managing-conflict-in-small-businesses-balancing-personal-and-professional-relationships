@@ -1,4 +1,4 @@
-Chapter 2: Overview of Conflict Management: Techniques for Overcoming Common Challenges in Conflict Management
+Techniques for Overcoming Common Challenges in Conflict Management
 ==============================================================================================================
 
 Effective conflict management is critical for maintaining a productive and harmonious work environment in small businesses. In this chapter, we will provide an overview of conflict management and explore techniques for overcoming common challenges in conflict management.

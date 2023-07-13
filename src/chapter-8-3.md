@@ -1,4 +1,4 @@
-Chapter 8: Keeping Emotions in Check: Maintaining Emotional Control during Conflict
+Maintaining Emotional Control during Conflict
 ===================================================================================
 
 Managing emotions is an important aspect of effective conflict management in small businesses. During conflicts, emotions can run high and prevent productive communication and resolution. In this chapter, we will explore techniques for maintaining emotional control during conflict.

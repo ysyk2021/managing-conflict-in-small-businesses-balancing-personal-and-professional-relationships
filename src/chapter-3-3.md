@@ -1,4 +1,4 @@
-Chapter 3: Understanding Personal and Professional Relationships: Exploring the Relationship between Relationships and Conflict
+Exploring the Relationship between Relationships and Conflict
 ===============================================================================================================================
 
 Understanding the relationship between personal and professional relationships is critical for managing conflict in small businesses. In this chapter, we will explore this relationship and how it impacts conflict management.
