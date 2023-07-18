@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 12: Conclusion
-======================
-
 Effective conflict management is critical for maintaining a positive and productive work environment in small businesses. In this chapter, we will recap key points and strategies, provide final recommendations for managing conflict in small businesses, and discuss future directions for research and practice.
 
 Recap of Key Points and Strategies
