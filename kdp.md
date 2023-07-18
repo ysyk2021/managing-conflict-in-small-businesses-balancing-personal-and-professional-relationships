@@ -10,7 +10,6 @@ With a focus on building trust and respect, effective communication, and active 
 
 Written by experts in the field of conflict resolution and small business management, "Managing Conflict in Small Businesses" is a must-read for any small business owner seeking to improve their conflict resolution skills and build stronger relationships in the workplace. So why wait? Pick up a copy today and learn how to manage conflicts like a pro!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
