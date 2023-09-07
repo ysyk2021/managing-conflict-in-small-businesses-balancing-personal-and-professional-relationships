@@ -1,6 +1,3 @@
-# The Impact of Conflict on Employee Morale and Performance
-
-## Introduction
 
 Conflict is an inevitable part of any workplace, including small businesses. When left unresolved, conflict can have a significant impact on employee morale and performance. This chapter delves into the various ways in which conflict affects employees within small businesses and highlights the importance of managing conflict effectively.
 

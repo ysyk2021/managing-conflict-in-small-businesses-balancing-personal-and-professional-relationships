@@ -1,5 +1,3 @@
-Chapter 10: Measuring and Evaluating Conflict Management Effectiveness
-======================================================================
 
 Effective conflict management is essential for promoting a positive and productive work environment in small businesses. In order to ensure that conflict management strategies are effective, it is important to measure and evaluate their effectiveness. In this chapter, we will explore techniques for measuring and evaluating conflict management effectiveness.
 

@@ -1,5 +1,3 @@
-Chapter 7: Addressing Conflict Directly
-=======================================
 
 Addressing conflict directly is an important aspect of effective conflict management in small businesses. By addressing conflicts head-on, small business leaders can prevent issues from escalating and foster a positive work environment. In this chapter, we will explore techniques for addressing conflict directly.
 

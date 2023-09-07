@@ -1,6 +1,3 @@
-# Managing Anger and Frustration
-
-## Introduction
 
 Anger and frustration are common emotions that can arise during conflicts in small businesses. Unmanaged anger and frustration can negatively impact relationships, communication, and productivity. This chapter explores strategies for small business owners to effectively manage anger and frustration, promoting a harmonious work environment and balanced personal and professional relationships.
 

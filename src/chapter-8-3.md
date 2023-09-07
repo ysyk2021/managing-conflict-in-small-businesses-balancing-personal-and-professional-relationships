@@ -1,4 +1,3 @@
-# Maintaining Emotional Control during Conflict
 
 Conflict is an inevitable aspect of running a small business, and it can be emotionally charged. How we manage our emotions during these conflicts greatly impacts the outcome and our relationships with others. In this chapter, we will explore strategies for maintaining emotional control during conflict situations, allowing small business owners to navigate conflicts effectively and preserve personal and professional relationships.
 

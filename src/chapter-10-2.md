@@ -1,4 +1,3 @@
-# Establishing Key Performance Indicators (KPIs)
 
 In small businesses, where personal and professional relationships often intersect, effective conflict management is crucial for maintaining a harmonious work environment. To ensure that conflict management strategies are successful, it is important to establish Key Performance Indicators (KPIs) that help measure progress and evaluate the effectiveness of these strategies. This chapter will delve into the process of establishing KPIs specifically tailored to managing conflict in small businesses.
 

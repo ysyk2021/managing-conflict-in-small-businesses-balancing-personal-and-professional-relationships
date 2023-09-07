@@ -1,4 +1,3 @@
-# Techniques for Negotiation and Collaboration
 
 In this chapter, we will explore various techniques that can be employed to effectively negotiate and collaborate in small businesses. Conflict is inevitable in any workplace, but by using these strategies, managers can minimize tension and foster healthy relationships among team members.
 

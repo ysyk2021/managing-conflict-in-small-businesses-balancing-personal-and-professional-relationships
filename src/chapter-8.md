@@ -1,5 +1,3 @@
-Chapter 8: Keeping Emotions in Check
-====================================
 
 Keeping emotions in check is essential for managing conflict in small businesses. In this chapter, we will explore techniques for keeping emotions in check, managing anger and frustration, and maintaining emotional control during conflict.
 

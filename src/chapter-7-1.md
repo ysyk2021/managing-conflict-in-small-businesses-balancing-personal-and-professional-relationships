@@ -1,4 +1,3 @@
-# Techniques for Addressing Conflict Directly
 
 In this chapter, we will explore various techniques that small business owners and managers can employ to address conflict directly within their organizations. By addressing conflicts head-on, you can prevent issues from escalating, promote a healthy work environment, and maintain harmonious personal and professional relationships.
 

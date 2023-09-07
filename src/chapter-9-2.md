@@ -1,6 +1,3 @@
-# Understanding the Role of Mediation
-
-## Introduction
 
 Conflict is an inevitable part of any business, especially in small businesses where personal and professional relationships often intertwine. When conflicts arise, it is crucial to find effective methods for resolution that promote harmony and maintain productive working environments. One such method is mediation. In this chapter, we will delve into the role of mediation in managing conflict in small businesses.
 

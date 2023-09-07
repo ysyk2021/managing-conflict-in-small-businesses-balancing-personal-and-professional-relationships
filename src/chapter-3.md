@@ -1,5 +1,3 @@
-Chapter 3: Understanding Personal and Professional Relationships
-================================================================
 
 Personal and professional relationships are integral to managing conflict in small businesses. In this chapter, we will explore techniques for understanding personal and professional relationships, identifying key elements of effective relationships, and exploring the relationship between relationships and conflict.
 

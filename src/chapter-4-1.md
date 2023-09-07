@@ -1,4 +1,3 @@
-# Techniques for Identifying Sources of Conflict
 
 In this chapter, we will explore various techniques that can help small business owners and managers identify the sources of conflict in their organizations. Understanding the root causes of conflicts is essential for effective conflict resolution and maintaining a harmonious work environment. By employing these techniques, small businesses can address conflicts at their core and prevent them from escalating.
 

@@ -46,3 +46,4 @@
   - [Adapting to Changes in the Business Environment](chapter-11-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

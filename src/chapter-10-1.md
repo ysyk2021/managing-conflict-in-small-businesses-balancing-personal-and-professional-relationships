@@ -1,4 +1,3 @@
-# Techniques for Measuring and Evaluating Conflict Management Effectiveness
 
 Conflict is inevitable in small businesses, where personal and professional relationships often intertwine. Effectively managing conflict is crucial for the success and sustainability of these businesses. However, it is equally important to measure and evaluate the effectiveness of conflict management techniques in order to ensure continuous improvement and better outcomes. In this chapter, we will explore various techniques for measuring and evaluating conflict management effectiveness in small businesses.
 

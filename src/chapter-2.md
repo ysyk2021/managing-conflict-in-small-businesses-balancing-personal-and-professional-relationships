@@ -1,5 +1,3 @@
-Chapter 2: Overview of Conflict Management
-==========================================
 
 Conflict management is an essential skill for small business leaders. In this chapter, we will provide an overview of conflict management, including different perspectives and approaches to conflict management, the impact of conflict on employee morale and performance, and techniques for overcoming common challenges in conflict management.
 

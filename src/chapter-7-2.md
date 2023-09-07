@@ -1,4 +1,3 @@
-# Using Assertive Communication Techniques
 
 In this chapter, we will explore the importance of assertive communication in managing conflict within small businesses. Assertiveness allows individuals to express their needs, opinions, and boundaries effectively while respecting the rights and perspectives of others. By using assertive communication techniques, small business owners and managers can promote open dialogue, prevent misunderstandings, and maintain balanced personal and professional relationships.
 

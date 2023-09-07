@@ -1,6 +1,3 @@
-# Developing Active Listening Skills
-
-## Introduction
 
 In the realm of managing conflict in small businesses, effective communication is paramount. One crucial aspect of communication is active listening, which plays a significant role in understanding and resolving conflicts in the workplace. This chapter explores the importance of developing active listening skills and provides practical strategies for small business owners to enhance their ability to listen actively.
 

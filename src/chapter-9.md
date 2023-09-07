@@ -1,5 +1,3 @@
-Chapter 9: Mediation and Third-Party Involvement
-================================================
 
 In some cases, conflicts in small businesses may be too complex or emotionally charged to resolve with internal conflict management strategies. In these situations, involving a third party can be an effective approach for resolving conflicts. Mediation is a commonly used technique that involves a neutral third party facilitating communication and negotiation between conflicting parties. In this chapter, we will explore techniques for mediation and third-party involvement.
 

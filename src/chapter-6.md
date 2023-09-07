@@ -1,5 +1,3 @@
-Chapter 6: Negotiation and Collaboration
-========================================
 
 Negotiation and collaboration are essential skills for resolving conflicts in small businesses. Effective negotiation involves identifying common ground and working towards mutually beneficial solutions, while collaboration involves working together to achieve a shared goal. In this chapter, we will explore techniques for negotiation and collaboration.
 

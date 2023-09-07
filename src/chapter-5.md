@@ -1,5 +1,3 @@
-Chapter 5: Communication and Active Listening
-=============================================
 
 Effective communication and active listening are essential skills for managing conflict and building strong relationships in small businesses. In this chapter, we will explore techniques for improving communication and developing active listening skills.
 
